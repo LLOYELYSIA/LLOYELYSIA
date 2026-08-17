@@ -1,16 +1,20 @@
-## Hi there 👋
+## ♡ ꜱᴍɪʟᴇ ᴀᴛ ᴛʜᴇ ᴜɴɪᴠᴇʀꜱᴇ! ᴀɴᴅ ᴛʜᴇɴ ɪᴛ ᴡɪʟʟ ꜱᴍɪʟᴇ ʙᴀᴄᴋ!
 
-<!--
-**LLOYELYSIA/LLOYELYSIA** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+If you're from **PONY TOWN**:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+⠀
+
+Feel free to do anything you want to my pony!
+
+Cuddle **/** hug it, hide behind it, touch it, poke it, kiss it,⠀***etc…***
+
+⠀
+
+Tell me, if you want me to follow you to another place, change my pony,⠀***etc…***
+
+⠀
+
+⠀
+
+♡ No **DNI** list.
