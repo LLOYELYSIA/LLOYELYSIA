@@ -7,6 +7,8 @@ If you're from **PONY TOWN**:
 
  ⠀Tell me, if you want me to do something, like follow you to another place, change my pony, ***etc*** *!*
 
+ ⠀I will never initiate an *interaction / conversation* first *!*
+
 ⠀
 
-Have a good day and remember to make everyone around you happy, and don’t forget about yourself *!*
+Have a good day and remember to make everyone around you happy, but don’t forget about yourself *!*
