@@ -3,7 +3,7 @@
 
 If you're from **PONY TOWN**:
 
- ⠀Feel free to *cuddle / hug / hide behind / touch / kiss /* ***etc*** *!*  *⠀I love cuddles and all, so, don't be shy !*
+ ⠀Feel free to *cuddle / hug / hide behind / touch / kiss /* ***etc*** *!* ⠀ *I love cuddles and all, so, don't be shy !* ⠀ ***Ships are allowed*** *!*
 
  ⠀Tell me, if you want me to do something, like follow you to another place, change my pony, ***etc*** *!*
 
@@ -11,9 +11,9 @@ If you're from **PONY TOWN**:
 
  ⠀
 
- ⠀Born in 2008 *!*
+ ⠀Born in 2008.
  
- ⠀Any pronouns *!*
+ ⠀Any pronouns.
 
  ⠀
 
