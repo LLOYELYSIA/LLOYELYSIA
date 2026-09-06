@@ -7,19 +7,21 @@ If you're from **PONY TOWN**:
 
  ⠀Tell me, if you want me to do something, like follow you to another place, change my pony, ***etc*** *!*
 
+ ⠀
+
  ⠀I will never initiate an *interaction / conversation* *!*
+ 
+ ⠀Not into fandom stuff *!*
 
  ⠀
 
  ⠀Born in 2008.
- 
- ⠀Any pronouns.
 
- ⠀
+ ⠀Any names. Any pronouns.
 
 ⠀
 
-Have a good day and remember to make everyone around you happy, but don’t forget about yourself *!*
+Have a **good day** *!*
 
 ⠀⠀
 
