@@ -15,11 +15,11 @@ If you're from **PONY TOWN**:
 
  ⠀
 
- ⠀Born in 2008 *!*
+ ⠀Born in 2008.
 
- ⠀Any names, any pronouns *!*
+ ⠀Any names, any pronouns.
 
- ⠀No DNI list *!* ⠀ Anyone can interact, just don't try to become friends with me *!* ⠀ Just have fun *!*
+ ⠀No DNI list. ⠀ Anyone can interact, but don't try to become friends with me. ⠀ Just have fun *!*
 
 ⠀
 
