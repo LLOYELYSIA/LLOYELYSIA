@@ -19,7 +19,7 @@ If you're from **PONY TOWN**:
 
  ⠀Any names, any pronouns *!*
 
- ⠀No DNI list *!* ⠀ Anyone can interact, just don't try to become friends with me *!*
+ ⠀No DNI list *!* ⠀ Anyone can interact, just don't try to become friends with me *!* ⠀ Just have fun *!*
 
 ⠀
 
