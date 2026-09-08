@@ -11,7 +11,7 @@ If you're from **PONY TOWN**:
 
  ⠀I will never initiate an *interaction / conversation* *!*
  
- ⠀Not really into fandom stuff and dramas *!* ⠀ If you need to argue with someone about *characters / ships*, I'm not the right person *!*
+ ⠀Not really into fandom stuff and dramas. ⠀ If you need to argue with someone about *characters / ships*, I'm not the right person.
 
  ⠀
 
@@ -23,7 +23,7 @@ If you're from **PONY TOWN**:
 
 ⠀
 
-Have a **good day** *!*
+Have a **good day** *!* ⠀ Respect yourself and others *!*
 
 ⠀⠀
 
