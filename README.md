@@ -1,4 +1,4 @@
-## ♡ ꜱᴍɪʟᴇ ᴀᴛ ᴛʜᴇ ᴜɴɪᴠᴇʀꜱᴇ *!* ⠀ᴀɴᴅ ᴛʜᴇɴ ɪᴛ ᴡɪʟʟ ꜱᴍɪʟᴇ ʙᴀᴄᴋ *!*
+## ♡ Smile at the Universe *!* ⠀And then it will smile back *!*
 
 
 If you're from **PONY TOWN**:
@@ -23,7 +23,7 @@ If you're from **PONY TOWN**:
 
 ⠀
 
-Have a **good day** *!* ⠀ Respect yourself and others *!*
+Have a **good day** *!* ⠀ Be kind to yourself and others *!*
 
 ⠀⠀
 
