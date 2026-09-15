@@ -11,8 +11,10 @@ If you're from **PONY TOWN**:
 
  ⠀I will never initiate an *interaction / conversation* *!*
  
- ⠀Not really into fandom stuff and dramas. ⠀ If you need to argue with someone about *characters / ships*, I'm not the right person.
-
+ ⠀Not really into fandom stuff and dramas. ⠀ If you want to argue with someone about *characters / ships*, I'm not the right person *!*
+ 
+ ⠀I'm only into LEGO Ninjago. ⠀ If you want to talk about ***your favourite*** *characters / ships* without being judged, I'm the right person *!*
+ 
  ⠀
 
  ⠀Born in 2008.
