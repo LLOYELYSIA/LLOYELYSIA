@@ -21,7 +21,7 @@ If you're from **PONY TOWN**:
 
  ⠀Any names, any pronouns.
 
- ⠀No DNI list. ⠀ Anyone can interact, but don't try to become friends with me. ⠀ Just have fun *!*
+ ⠀No DNI list. ⠀ Anyone can interact. ⠀ Just have fun *!*
 
 ⠀
 
