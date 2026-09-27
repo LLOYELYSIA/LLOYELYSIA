@@ -3,9 +3,9 @@
 
 If you're from **PONY TOWN**:
 
- ⠀Feel free to *cuddle / hug / hide behind / touch / kiss /* ***etc*** *!* ⠀ *I love cuddles and all, so, don't be shy !* ⠀ ***Ships are allowed*** *!*
+ ⠀Feel free to *cuddle / hide behind / touch / kiss /* ***etc*** *!* ⠀ *I love cuddles and all, so, don't be shy !* ⠀ ***All ships are allowed*** *!*
 
- ⠀Tell me, if you want me to do something, like follow you to another place, change my pony, ***etc*** *!*
+ ⠀Tell me, if you want me to do something, like follow you to another place, change my pony, ***etc*** *!* ⠀ But sometimes I may not answer due to being busy *!*
 
  ⠀
 
