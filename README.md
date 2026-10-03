@@ -1,4 +1,4 @@
-## ♡ Smile at the Universe *!* ⠀And then it will smile back *!*
+## 🥧 Smile at the Universe *!* ⠀And then it will smile back *!*
 
 
 If you're from **PONY TOWN**:
