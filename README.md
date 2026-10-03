@@ -23,7 +23,7 @@ If you're from **PONY TOWN**:
 
  ⠀Any names, any pronouns.
 
- ⠀No DNI list. ⠀ Anyone can interact. ⠀ Just have fun *!*
+ ⠀No DNI list. ⠀ Anyone can interact. ⠀ Have fun *!*
 
 ⠀
 
