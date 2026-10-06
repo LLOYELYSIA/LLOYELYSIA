@@ -9,7 +9,7 @@ If you're from **PONY TOWN**:
 
  ⠀Most of the time I sit in the **bakery yard**, sometimes in a **nightclub**.
 
- ⠀«**🌱 — Dreaming of Pies**» means I'm away.
+ ⠀«**Dreaming of Pies**» means I'm away.
 
 ⠀⠀
 
