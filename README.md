@@ -31,4 +31,4 @@ Have a good day *!* ⠀ Be kind to yourself and others *!*
 
 ⠀⠀
 
-![⠀♡⠀](https://github.com/LLOYELYSIA/LLOYELYSIA/blob/main/%E2%A0%80LEGO%20Ninjago%E2%A0%80Lloyd%E2%A0%80.png)
+⠀♡
