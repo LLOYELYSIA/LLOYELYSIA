@@ -1,7 +1,7 @@
 ## 🥧 Smile at the Universe *!* ⠀And then it will smile back *!*
 
 
-⠀⠀If you're from **PONY TOWN**:
+⠀If you're from **PONY TOWN**:
 
  ⠀Feel free to *cuddle / hide behind / touch / kiss /* ***etc*** *!* ⠀ *I love cuddles and all, so, don't be shy !* ⠀ ***All ships are allowed*** *!*
 
@@ -31,4 +31,4 @@
 
 ⠀⠀
 
-⠀⠀🥧
+⠀🥧
