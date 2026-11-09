@@ -7,7 +7,7 @@ If you're from **PONY TOWN**:
 
  ⠀Whisper to interact. Also, tell me, if you want me to do something, like follow you to another place, change my pony, ***etc*** *!* ⠀ But sometimes I may not answer due to being busy *!*
 
- ⠀Most of the time I sit in the **bakery yard**, sometimes in other places.
+ ⠀Most of the time I sit in the **bakery**, sometimes in other places.
 
 ⠀⠀
 
